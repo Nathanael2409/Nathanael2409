@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 👋 Hello ! I'm Nathanael from Tgmaster University, a private university in Abidjan.
+- 👋 I'm Nathanael from Tgmaster University, a private university in Abidjan.
   
 - 👯 I'm a member of the SAYNA community, a digital platform where we have the honor of doing training to deepen our knowledge and get additional certificates.
 
