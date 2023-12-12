@@ -8,7 +8,7 @@
 
 - 🤔 I'm open to collaborating on various projects around the world to learn more and develop my pedagogical project.
 
-- 📫 You can contact me at tanonathanaelkohi@gmail.com or on my LinkedIn profile Tano Nathanael KOHI
+- 📫 You can contact me at tanonathanaelkohi@gmail.com or on my LinkedIn profile www.linkedin.com/in/tano-nathanael-kohi-6583b725a
 
 
         🔭See you soon...
